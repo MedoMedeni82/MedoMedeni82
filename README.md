@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @MedoMedeni82 from Croatia🇭🇷..😁😁😁
-- 👀 I’m interested in ..Android
+- 👋 Hi, I’m @MedoMedeni82 from fuckn🤣 Croatia🇭🇷..😁😁😁
+- 👀 I’m interested in ..Android & Windows
 - 🌱 I’m currently learning ...android and Windows codes
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
